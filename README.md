@@ -1,2 +1,2 @@
-# LiuliuJunbo.github.io
+# liujunboo.github.io
 MY BLOG
